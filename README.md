@@ -2,7 +2,6 @@
 👀 I’m interested in art and reed.
 🌱 I’m currently learning about technology.
 💞️ I’m looking to collaborate on innovative projects in technology companies.
-📫 How to reach me: arcegarciacarol@gmail.com
 ⚡ Fun fact: I can lose track of time exploring creative ideas!
 
 
